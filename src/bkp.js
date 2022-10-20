@@ -1,0 +1,1 @@
+I am an experienced customer support supervisor, leading a team of 8 advisers, supporting 10,000 end-user customers across the UK. I produced weekly and monthly KPI reports and as a result was able to introduce new ways of working that increased efficiency and improved end-user experience and thereby, 20% less support calls in the first year after implementation.
